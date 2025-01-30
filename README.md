@@ -1,0 +1,1 @@
+# Karnataka-Govt-Jobs-2025-Apply-Vacancies-Latest-Updates
